@@ -1,0 +1,1 @@
+Readme da Variação 1
